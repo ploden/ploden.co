@@ -1,0 +1,27 @@
+> *Let your women keep silence in the churches: for it is not permitted unto them to speak; but they are commanded to be under obedience, as also saith the law.*
+> 
+> *And if they will learn anything, let them ask their husbands at home: for it is a shame for women to speak in the church.*
+> 
+> *What? came the word of God out from you? or came it unto you only?*
+> 
+> *If any man think himself to be a prophet, or spiritual, let him acknowledge that the things that I write unto you are the commandments of the Lord.*
+> 
+> *But if any man be ignorant, let him be ignorant.*
+> 
+> *Wherefore, brethren, covet to prophesy, and forbid not to speak with tongues.*
+> 
+> *Let all things be done decently and in order.*
+
+> It appears that the Church of the Corinthians was infected with this fault too, that the talkativeness of women was allowed a place in the sacred assembly, or rather that the fullest liberty was given to it. Hence he forbids them to speak in public, either for the purpose of teaching or of prophesying. This, however, we must understand as referring to ordinary service, or where there is a Church in a regularly constituted state; for a necessity may occur of such a nature as to require that a woman should speak in public; but Paul has merely in view what is becoming in a duly regulated assembly.
+> 
+> *Let them be in subjection, as also saith the law.* What connection has the object that he has in view with the subjection under which the law places women? "For what is there," some one will say, "to hinder their being in subjection, and yet at the same time teaching?" I answer, that the office of teaching is a superiority in the Church, and is, consequently, inconsistent with subjection. For how unseemly a thing it were, that one who is under subjection to one of the members, should preside over the entire body! It is therefore an argument from things inconsistent -- If the woman is under subjection, she is, consequently, prohibited from authority to teach in public. And unquestionably, wherever even natural propriety has been maintained, women have in all ages been excluded from the public management of affairs. It is the dictate of common sense, that female government is improper and unseemly. Nay more, while originally they had permission given to them at Rome to plead before a court, the effrontery of Caia Afrania led to their being interdicted, even from this. Paul's reasoning, however, is simple -- that authority to teach is not suitable to the station that a woman occupies, because, if she teaches, she presides over all the men, while it becomes her to be under subjection.
+>
+> *If they wish to learn any thing.* That he may not seem, by this means, to shut out women from opportunities of learning, he desires them, if they are in doubt as to anything, to inquire in private, that they may not stir up any disputation in public. When he says, husbands, he does not prohibit them from consulting the Prophets themselves, if necessary. For all husbands are not competent to give an answer in such a case; but, as he is reasoning here as to external polity, he reckons it sufficient to point out what is unseemly, that the Corinthians may guard against it. In the meantime, it is the part of the prudent reader to consider, that the things of which he here treats are intermediate and indifferent, in which there is nothing unlawful, but what is at variance with propriety and edification.
+
+…
+
+> But it may be asked here, how it is that Paul declares those things to be commandments of the Lord, as to which no statement is to be found in the Scriptures? Besides this, there is also another difficulty that presents itself -- that if they are the commandments of the Lord, they are necessary to be observed, and they bind the conscience, and yet they are rites connected with polity, as to the observance of which no such necessity exists. Paul, however, merely says, that he enjoins nothing, but what is in accordance with the will of God. Now God endowed him with wisdom, that he might recommend this order in external things at Corinth, and in other places -- not that it might be an inviolable law, like those that relate to the spiritual worship of God, but that it might be a useful directory to all the sons of God, and not by any means to be despised.
+
+…
+
+> *All things decently and in order* Here we have a more general conclusion, which does not merely include, in short compass, the entire case, but also the different parts. Nay farther, it is a rule by which we must regulate everything, that has to do with external polity. As he had discoursed, in various instances, as to rites, he wished to sum up everything here in a brief summary -- that decorum should be observed -- that confusion should be avoided. This statement shows, that he did not wish to bind consciences by the foregoing precepts, as if they were in themselves necessary, but only in so far as they were subservient to propriety and peace. Hence we gather (as I have said) a doctrine that is always in force, as to the purpose to which the polity of the Church ought to be directed. The Lord has left external rites in our choice with this view -- that we may not think that his worship consists wholly in these things.
